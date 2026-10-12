@@ -1,4 +1,4 @@
-# Actividad individual 2 Valor 20%
+# Actividad individual 3 Valor 10%
 
 Universidad Nacional de Colombia - Sede Medelli­n
 
